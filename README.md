@@ -37,4 +37,4 @@ Seeking an entry-level opportunity in Data Analytics where I can apply my techni
 ## 🔗 Connect With Me
 
 - **GitHub:** [Thasleena1993](https://github.com/Thasleena1993)
-- **LinkedIn:** 
+- **LinkedIn:** https://www.linkedin.com/in/thasleena-hassan-593008233?utm_source=share_via&utm_content=profile&utm_medium=member_android
